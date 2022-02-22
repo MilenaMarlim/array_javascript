@@ -6,7 +6,7 @@
 💬 Material de construção do post para o linkedin referente ao assunto: Javascript - Array
 
 🚀  Quer ver o post do linkedin? Clique:
-https://www.linkedin.com/feed/update/urn:li:activity:6901889397546196992/
+https://bit.ly/3s9DysH
 
 
 Qualquer dúvida, me envie uma mensagem! Vamos aprender juntos!
